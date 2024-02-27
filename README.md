@@ -1,1 +1,1 @@
-# -ntizar-G-zel-ay
+# İntizar Güzelçay
